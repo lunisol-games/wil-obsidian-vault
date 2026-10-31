@@ -1,0 +1,8 @@
+Depending on player actions, the behavior of Withes will change and events that unfold in the final act of the game, with [[The Final Eclipse]], may be different.
+
+[[Romance Routes - Corruption]] may trigger the Neutral Ending. A soft extinction of humans, forcefully bringing them all to Helios' domain to partake in an eternal soul orgy. And, of course, [[Selene]] would be his and only his, and be the queen of his kingdom, his main concubine.
+It's bittersweet because Selene, as much as she adores Helios, also loves the humans and it's unfair that Helios decided that for her. Plus this new relationship is not super equal.
+
+It may also trigger the True Corruption Ending. The player gets total control over Helios's gift and takes Selene and all Witches in his path for himself. Ends up reigning over [[The Shades]] in a giant harem akin to the one Helios has in his kingdom. Kind of the Undertale equivalent of the genocide route but porn. Helios is cucked and sad.
+
+[[Romance Routes - Love]] will trigger the True Love Ending, which is arguably the "best" morally speaking. Involves having all the cards in hand to deviate helios plan into something less extreme that would still satisfy him. [[The Shades]] become a haven for Heliotropes and Witches alike, and they get prepared and taught the truth about the gods and their history, as well as their fate in the afterlife. Eclipses can happen regularly without hurting the life on earth because of a magic tech upkept by the [[The Tyranne Sisterhood]], and engineered using [[Belle Joy]]'s [[Divine Drops]].

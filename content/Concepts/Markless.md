@@ -1,0 +1,1 @@
+A person that is neither an Heliotrope or a Witch. May also use the term "Moonless" for women or "Sunless" for men.

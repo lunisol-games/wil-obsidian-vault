@@ -1,0 +1,1 @@
+A little county midway between Rospiel and Shroomburg. The place is quite similar to Shroomburg although a bit smaller and less known.
