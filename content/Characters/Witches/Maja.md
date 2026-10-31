@@ -4,7 +4,7 @@ Because, soon after birth she was sold to the [[The Tyranne Sisterhood]], to liv
 
 The way the Sisterhood works, witches are forbidden to settle with a man and thus becoming pregnant, that's why they have to resort to this. Although fucking around is encouraged especially to manipulate the hearth of the inferior men. And also because Witches happen to be quite horny creatures. This is an important theme in Maja storyline as she yearns for an actual partner and a child.
 
-She was sent out to survey the [[The Emerald Vale]] as the High Sister and her divination power found that a danger to the clan was brewing in the vicinities of Shroomburg and needed to be monitored. Thus the merchant role, perfect to mingle with the population.
+She was sent out to survey the [[The Emerald Vale]] as the High Sister and her divination powers found that a danger to the Sisterhood was brewing in the vicinity of [[Shroomburg]] and needed to be monitored. Thus the merchant role, perfect to mingle with the population and hear about rumors.
 
 She was taught to treat men only as tools but she is quite empathetic due to her powers and struggle to be as disdainful towards them as her sisters.
 

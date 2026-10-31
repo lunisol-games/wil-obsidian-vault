@@ -1,0 +1,9 @@
+Grew up in [[Rospiel]]. Energetic redhead with a unhealthy fascination for Heliotrope and Witches. It's revealed later that that fixation is due to [[The Witch Factor]], inherited from a very ancient ancestor Witch.
+
+Her passion obviously led her to join [[WANK]], not really to support their noble cause, but to surround herself with Witches and Heliotropes. That's how she met [[Richard]] and got in a relationship with him. Obviously, when he revealed to her he'd take over a rundown brewery hiding a temple to Helios, she begged him to accompany him. Had he refused, she'd probably have turned full on crazy because of the Witch Factor.
+
+They worked together for years in the Brewery, while trying to decrypt the secret behind the Temple, and why Richard was so... successful with Witches in the Brewery. They finally unlocked the temple by chance during one of their fling, as they fucked next to Helios' statue, and from there, things started to move very fast.
+
+She was very invested in [[The Final Eclipse]] and whatever she could to help Richard and [[Helios]] achieve it. She played the matchmaker between the Heliotrope and Witches, and made sure they'd do tons and tons of fucking, constantly riling up Richard to go the extra mile. The Temple was fueling up fast and was close to the amount of energy it needed to exact the plan.
+
+When Richard realized the truth about it and fled, she was devastated. An eternal heaven orgy in the god's kingdom? This HAD to happen! So she falsified Richard testament, who didn't want any Heliotrope to ever approach the Temple again, and made sure [[Player]], his nephew, would inherit it. While waiting for Richard to be officially announced dead, she prepared the ground so that the next time would be smooth sailing and she can earn her sex session ticket with [[Helios]] during the Final Eclipse.
