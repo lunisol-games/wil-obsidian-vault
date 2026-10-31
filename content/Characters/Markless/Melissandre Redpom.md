@@ -1,6 +1,6 @@
 Grew up in [[Rospiel]]. Energetic redhead with a unhealthy fascination for Heliotrope and Witches. It's revealed later that that fixation is due to [[The Witch Factor]], inherited from a very ancient ancestor Witch.
 
-Her passion obviously led her to join [[WANK]], not really to support their noble cause, but to surround herself with Witches and Heliotropes. That's how she met [[Richard]] and got in a relationship with him. Obviously, when he revealed to her he'd take over a rundown brewery hiding a temple to Helios, she begged him to accompany him. Had he refused, she'd probably have turned full on crazy because of the Witch Factor.
+Her passion obviously led her to join [[WANK]], not really to support their noble cause, but to surround herself with Witches and Heliotropes. That's how she met [[Richard Crownwell]] and got in a relationship with him. Obviously, when he revealed to her he'd take over a rundown brewery hiding a temple to Helios, she begged him to accompany him. Had he refused, she'd probably have turned full on crazy because of the Witch Factor.
 
 They worked together for years in the Brewery, while trying to decrypt the secret behind the Temple, and why Richard was so... successful with Witches in the Brewery. They finally unlocked the temple by chance during one of their fling, as they fucked next to Helios' statue, and from there, things started to move very fast.
 

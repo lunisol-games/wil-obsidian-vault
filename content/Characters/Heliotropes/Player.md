@@ -1,0 +1,1 @@
+Member of [[The Crownwell Family]] and Heliotrope. Inherited the Brewery.
