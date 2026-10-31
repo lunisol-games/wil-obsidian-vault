@@ -1,0 +1,1 @@
+The source of all life and magic in the world. Emitted from the leaves of [[The Moontree]]. It is said that Magima consumed by the Witches's spells go under the ground, and slowly find their way back to the tree's roots to be recycled. Thus the magic in the world, although in a finite amount, is inhexaustible.

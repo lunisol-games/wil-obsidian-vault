@@ -1,8 +1,0 @@
-Apart from the political chaos on the realm of mortals that Witches brought force, things were going well for [[Helios]] and [[Selene]]. For a while.
-
-As Helios' harem grew, things started to become out of control. Too many beauties to embrace, and not enough of him. So he did something similar to Selene and marked men with his blessing. Heliotropes would be invited to his realm and assist him in fucking the brains out of all of Selene's daughters. His realm would quickly become a huge godly orgy of which he'd rule over, and Selene would crawl in pleasure in her hideout as she felt thousand of dicks by proxy.
-
-However, yet again, some side effects from the god's essence appeared on the marked mortals. They would store the surrounding Magima in their body, weakening the Witches that need it in to cast their spells. When Witches understood that Heliotropes were depriving them from the Magima supplies, Helios started to be villainized by [[Tyranne, the first Witch]] and her supporters. This is why most temples to Helios were destroyed during that era, whereas sanctuaries were created to protect the ones that were dedicated to Selene.
-
-On Helios's side, although the original problem was solved, he wasn't entirely satisfied.
-Helios is greedy, and he still desires his one true love, Selene. At the time of the game, he is in the middle of looking for a champion to execute his plan of the [[07 - The Final Eclipse]].

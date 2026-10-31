@@ -1,4 +1,6 @@
-[[Selene]], to protect Earth from another Eclipse, conceived an elaborate plan to ease both hers and Helios' urge to meet again. She marked women of her liking on Earth with her blessing. Through her influence, they would become beautiful and powerful temptresses. And upon their passing, they would join Helios on his comet and decide either to remain with his as a concubine or reincarnate.
+[[Selene]], to protect Earth from another Eclipse, conceived an elaborate plan to ease both hers and Helios' urge to meet again.
+
+She marked women of her liking on Earth with her blessing. Through her influence, they would become beautiful and powerful temptresses. And upon their passing, they would join Helios on his comet and decide either to remain with his as a concubine or reincarnate.
 
 This action was not completely selfless. Selene did something else for her own sake and sanity. Whenever these concubines would receive the warmth of Helios between their thighs, she would feel it too and be "connected" to him. Remote sex of sorts.
 

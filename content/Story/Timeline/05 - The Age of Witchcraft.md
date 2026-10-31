@@ -1,0 +1,5 @@
+The appearance of Selene's daughters completely shifted the balance of power in the world. A single one could tip the scales of battle in war, or manipulate a king into doing her bindings. Some places hailed them as divinities. Other shunned them and waged war upon them, killing any marked girl indiscriminately.
+
+Then arrived [[Tyranne, the first Witch]]. She united the Witches from all around the world and created a sanctuary in [[The Shades]]. During her reign, she made sure any repression against her kin would be met with magic fury. She's remembered as a fearful, tyrannic leader, but in reality, it's a lot of anti-witch propaganda, as she just defended her Sisters from the cruelty of [[Markless]] people.
+
+Things calmed down a bit after that. Witches were allowed to coexist with the [[Markless]], although discrimination has always remained. Others seeked refuge in [[The Shades]] to live in community with their kins and develop their powers together.

@@ -1,0 +1,1 @@
+Specialize in teleportation and navigation on rough terrain, as well as foraging rare magical components using guidance from animals and trees.

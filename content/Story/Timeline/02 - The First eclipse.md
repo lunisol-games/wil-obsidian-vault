@@ -1,0 +1,5 @@
+After millions of years, the bashful [[Selene]] finally decides to look at [[Helios]]. [[The Moontree]] is bathing in his light for the first time in the history of the universe. The two gods’ eyes meet and they fall madly in love with each other. 
+
+The powerful sunlight creates a bridge between Earth and the Sun, and Selene is invited aboard Helios’s star, and the two finally unite. They wish they could remain together like this for all eternity, but the phenomenon that would later be known as the Eclipse plunges the rest of the planet into total darkness, as the Moon Tree absorbs all of Helios’s light.  When Selene realized it, she told Helios they had to separate and hid once more to protect her creations from total annihilation.
+
+Their union, however, will bring about a miracle. The seed Helios planted within Selene germinates a few centuries later, giving birth to the first humans: mortal beings created in their image.

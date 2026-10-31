@@ -1,6 +1,6 @@
 The name of the plan [[Helios]] came up with to unite with Selene forever.
 
-It consists of invading [[The Moontree]], heavily guarded by [[The Tyranne Sisterhood]], meet with [[Selene]], and distract her long enough for Helios to bind himself to the Moontree.
+It consists of having an Heliotrope invading [[The Moontree]], heavily guarded by [[The Tyranne Sisterhood]], meet with [[Selene]], and "distract" her long enough for Helios to bind himself to the Moontree.
 
 Depending on how Helios power have been exploited by the player, different endings will occur.
 

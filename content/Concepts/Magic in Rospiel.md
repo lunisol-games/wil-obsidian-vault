@@ -1,3 +1,0 @@
-There is a group of magic activists fighting against the radical anti-witch policies plaguing Rospiel.
-
-In very recent years, people belonging to this group are being hunted down and lynched as heretics and dissidents, dissuading new members in joining by fear for their life and their family, and the remaining members try to remain anonymous and resort to extreme methods such as terrorist attacks. The movement is dying.
