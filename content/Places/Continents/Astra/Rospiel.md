@@ -1,1 +1,3 @@
-The biggest and most influential city in the 
+The capital city in [[The Northern Kingdom]]. Heavy inspiration from European capital cities. This is the most technology advanced place on Earth, with magic autonomous contraptions that make Witches power obsolete by using the ambiant Magima as fuel, such as public transportation. Advanced but not futuristic though, not retrofuturistic either, it should still feel light fantasy, with some QoL improvement basically.
+
+Altough everyone reports to the king, there is a lot of politic going on here, kind of inspired by british parliament. Things are taking a rather grim turn recently with the rise of fascism and [[New Dawn]].

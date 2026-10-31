@@ -1,4 +1,3 @@
-
 A long way before the first Witch and Heliotrope appeared, Selene and Helios were worshipped and loved by humans. They built statues and temples to their likeness.
 
 The faith and adoration amplified the gods influence there, bringing forth boons and blessings. Love, fertility, good fortune, good crops...

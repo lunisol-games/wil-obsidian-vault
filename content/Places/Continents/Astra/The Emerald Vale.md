@@ -1,0 +1,1 @@
+Democratic republic independant from [[The Northern Kingdom]], its territory taking about a eighth of [[The Astra Continent]], south. 

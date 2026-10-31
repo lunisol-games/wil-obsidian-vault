@@ -8,4 +8,4 @@ She was sent out to survey the [[The Emerald Vale]] as the High Sister and her d
 
 She was taught to treat men only as tools but she is quite empathetic due to her powers and struggle to be as disdainful towards them as her sisters.
 
-The actions of the player will decide what Maja will end up doing when she finds out about [[The Final Eclipse]] which will influence the ending. She may warn her Sisterhood, embrace helios plan and betray them, or convince her Sisters to cooperate to achieve the True Love Ending.
+The actions of the player will decide what Maja will end up doing when she finds out about [[07 - The Final Eclipse]] which will influence the ending. She may warn her Sisterhood, embrace helios plan and betray them, or convince her Sisters to cooperate to achieve the True Love Ending.

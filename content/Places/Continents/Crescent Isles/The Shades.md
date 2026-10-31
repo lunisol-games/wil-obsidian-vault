@@ -1,0 +1,1 @@
+The territory surrounding [[The Moontree]], where Helios' influence cannot reach. [[The Tyranne Sisterhood]]'s safe haven. It's heavily fortified and [[Markless]] and Heliotropes are forbidden from ever reaching its shores.

@@ -1,4 +1,4 @@
 ---
-title: Witches In Love
+title: Lunisol Games Lore
 ---
-This is a vault for anything story related with the world of Witches In Love
+This is a Lore vault for anything story related with the world of Lunisol Games.

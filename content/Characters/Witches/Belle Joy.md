@@ -4,7 +4,7 @@ Naive and gentle girl, a bit clumsy and less capable than her sister for everyda
 
 She is a very curious and obsessive girl. She always had to know everything. Learn about everything unfamiliar to her. Unbeknownst to anyone, not even her, she has a heavy case of the [[The Witch Factor]], making her thirst for knowledge and power a tad too intense and uncontrollable. She hurt herself a fair amount of time because of the insane risks she was taking during her experiments, due to her recklessness.
 
-She is in particular completely obsessed with [[Divine Drops]], a lost elixir created by [[Tyranne, the first Witch]] during her reign, to heighten her powers to the level of Selene for the span of a few seconds. It's going to be her main agenda throughout the game and the success of it is absolutely needed to get the true ending of [[The Final Eclipse]].
+She is in particular completely obsessed with [[Divine Drops]], a lost elixir created by [[Tyranne, the first Witch]] during her reign, to heighten her powers to the level of Selene for the span of a few seconds. It's going to be her main agenda throughout the game and the success of it is absolutely needed to get the true ending of [[07 - The Final Eclipse]].
 
 The themes explored throughout bonding with Belle are [[The Witch Factor]], the inner workings of [[Magima]] and potion brewing, her childhood in [[Aerafal]], and her grand quest to recreate the [[Divine Drops]].
 

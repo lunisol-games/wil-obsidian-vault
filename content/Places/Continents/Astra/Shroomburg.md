@@ -1,0 +1,3 @@
+Place where the game takes place. Rather big village in the South of [[The Emerald Vale]]. Tuscany, Provence, Camargues inspiration. Economic boom that is partly thanks to the migration of Witches southbound and the appearance of many magic shops.
+
+Although not in the first stages of the game, the player will work with the Mayor towards expanding Shroomburg influence and help it become one of the greatest witch-friendly commercial hubs of [[The Astra Continent]]. 

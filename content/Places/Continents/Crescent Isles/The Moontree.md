@@ -1,0 +1,1 @@
+A giant, beautiful tree, where [[Selene]] resides. It's the source of all the Magima in the world.

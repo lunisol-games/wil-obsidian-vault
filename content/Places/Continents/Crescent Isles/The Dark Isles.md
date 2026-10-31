@@ -1,0 +1,1 @@
+An archipelago with [[The Moontree]] at its center. They're called like so because the leaves of the Moontree block any light from the sun, plunging the surrounding area in complete darkness. Although, in reality, it's only really true in [[The Shades]], and the most far away territories are not as dark.
