@@ -1,0 +1,4 @@
+- Magima, needed for all spellcasting. Regularly needs to be refilled through a Transfer.
+- Corruption, a long term gauge that influences the Witch behavior and the ending.
+- Levels / XP : unlocks new stuff, represents relationship and growth.
+- Buffs/Debuffs, things that may impact output of witch or unlock certain content. Some are time related, some are permanent, some disappear after a certain event...
