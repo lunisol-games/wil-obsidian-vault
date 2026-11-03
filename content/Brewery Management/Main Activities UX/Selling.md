@@ -1,0 +1,10 @@
+- Select Potions/Ingredients and a Tactic.
+	- The number of slots is limited but not fixed (progression/tactics may change it).
+	- Tactic is a modifier that costs extra Magima to the task. They can, among other things:
+		- Influence prices.
+		- Modify number of slots.
+		- Better chance of Rumors.
+		- Obtain more XP.
+		- Obtain more Reputation.
+		- Other exotic stuff eventually.
+	- New tactics get unlocked as you progress through the game and help you make more money faster.

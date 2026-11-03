@@ -9,21 +9,15 @@
 > The event series feature Anna being trapped by the Naughtree which escalates everytime.
 > Repeatable X scene at the end to generate Helios Influence and gain XP.
 
-
-
 ## Transfer
 
 > [!NOTE] Hand Transfer (Duo)
 > Least effective Transfer method. Costs 4 Times. Grants 50 Magima
 
 > [!NOTE] Direct Transfer (Duo)
-> Standard Transfer method. Costs 2 Times. Grants 50 Magima
+> Standard Transfer method. Costs 2 Times. Grants 50 Magima. Needs unlock.
 
 ## Bond
 
 > [!NOTE] Convince to use Direct Transfer (Challenge) 
-> Unlocks "Direct Transfer". Costs 2 Times. One try per day.
-
-## Backlog
-
-- Surveying the land to unlock new activities / 
+> Unlocks "Direct Transfer". Costs 2 Times. One try per day. Get option after a first Hand Transfer is done.
