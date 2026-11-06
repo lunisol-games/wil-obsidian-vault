@@ -1,0 +1,1 @@
+Hidden stat that measures how familiar Anna is with the Shroomburg area. Whenever it reaches a new threshold, we get the possibility to unlock a new major area through a ritual.

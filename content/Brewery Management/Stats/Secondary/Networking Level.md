@@ -1,0 +1,1 @@
+Hidden stat describing how much Maja is familiar with the people in Shroomburg's vicinity. Unlocks new content whenever this reaches a certain threshold.

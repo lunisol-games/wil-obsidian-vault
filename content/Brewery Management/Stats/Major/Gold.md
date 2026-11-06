@@ -1,0 +1,1 @@
+Earned through business, spent to improve said business.

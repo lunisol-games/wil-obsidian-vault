@@ -1,4 +1,4 @@
-The Goddess of Night and Magic. Also tied to Birth as she is the maker of all living things, weaved from the [[Magima]] of [[The Moontree]].
+The Goddess of Night and Magic. Also tied to Birth as she is the maker of all living things, weaved from the [[Concepts/Magima]] of [[The Moontree]].
 
 Lives on Earth, inside [[The Moontree]], next to [[The Tyranne Sisterhood]], although she never directly engages with them as she prefer not to interfere with her creations' life.
 

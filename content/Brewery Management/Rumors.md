@@ -1,0 +1,1 @@
+A collection of side quests collected randomly by Maja as she works. Each rumor adds a new task to complete it. Completing the task brings rewards and a [[Networking Level]] point.

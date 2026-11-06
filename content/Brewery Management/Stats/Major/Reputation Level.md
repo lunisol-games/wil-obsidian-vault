@@ -1,0 +1,3 @@
+It's a [[Leveling System]] that measures the fame of the Brewery. It's improved when selling stuff and through some other specific actions that put your shop under the spotlight. It can also be reduced when you make a blunder.
+
+Alongside [[Love-Meter]] it's one of the drivers of the Main Story, and going through a new level will move things around a bit! New levels also grant new business opportunities, like upgrades for your tools, partnerships with Shroomburg Merchants, new activities and Tactics for [[Maja]]...

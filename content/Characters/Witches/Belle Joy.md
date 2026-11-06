@@ -6,7 +6,7 @@ She is a very curious and obsessive girl. She always had to know everything. Lea
 
 She is in particular completely obsessed with [[Divine Drops]], a lost elixir created by [[Tyranne, the first Witch]] during her reign, to heighten her powers to the level of Selene for the span of a few seconds. It's going to be her main agenda throughout the game and the success of it is absolutely needed to get the true ending of [[07 - The Final Eclipse]].
 
-The themes explored throughout bonding with Belle are [[The Witch Factor]], the inner workings of [[Magima]] and potion brewing, her childhood in [[Aerafal]], and her grand quest to recreate the [[Divine Drops]].
+The themes explored throughout bonding with Belle are [[The Witch Factor]], the inner workings of [[Concepts/Magima]] and potion brewing, her childhood in [[Aerafal]], and her grand quest to recreate the [[Divine Drops]].
 
 Her character development varies depending on [[Romance Routes]].
 [[Romance Routes - Love]]: Her Witch Factor mellows out and she achieves her life goal thanks to your precious help. She may use the [[Divine Drops]] to contribute to the magic tech that is needed for the True Love Ending.

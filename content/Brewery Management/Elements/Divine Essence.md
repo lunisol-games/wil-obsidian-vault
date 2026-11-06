@@ -1,0 +1,1 @@
+Counts as a Wildcard, boosting the potency without changing the balance.
