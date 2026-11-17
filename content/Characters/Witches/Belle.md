@@ -1,3 +1,5 @@
+Belle Joy
+
 Grew up in [[The Joy Household]] in [[Aerafal]].
 
 Naive and gentle girl, a bit clumsy and less capable than her sister for everyday life stuff, she is nonetheless very talented in her area of expertise and has always been passionate about Alchemy. A bit too much.

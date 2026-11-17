@@ -11,6 +11,6 @@ These are the stats that are tied to Witches:
 - [[Statuses]]
 
 There are some secondary hidden stats for each Witch.
-[[Anna Joy]] has [[Land Survey]].
-[[Belle Joy]] has [[Research Level]].
-[[Maja]] has [[Networking Level]].
+[[Anna]] has [[Land Survey]].
+[[Belle]] has [[Research Level]].
+[[Characters/Witches/Maja]] has [[Networking Level]].

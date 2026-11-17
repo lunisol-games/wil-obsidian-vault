@@ -1,3 +1,5 @@
+Anna Joy
+
 Anna was the sweetest girl growing up, even nicer and gentler than her sister Belle. On top of that she has always been a very talented and athletic Wayfarer, sometimes qualified as a genius for how much control she has over her teleportation. She was helping around in the village using her powers and was really loved by everyone.
 
 When she started going pro, she contracted for [[The Guild of Merchants]], and was under the management of a Heliotrope neighbor, Eric, that sometimes accompanied her in her foraging routine.

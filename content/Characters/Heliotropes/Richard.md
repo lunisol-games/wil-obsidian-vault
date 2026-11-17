@@ -1,9 +1,11 @@
+Richard Crownwell
+
 Uncle of [[Player]] and part of [[The Crownwell Family]].
 
 Richard is a Heliotrope and previous owner of the brewery.
 
 Grew up in [[Rospiel]], and feeling ostracized because of his mark, joined [[WANK]].
-Met [[Melissandre Redpom]] and moved out to the brewery in [[Shroomburg]] with her after he graduated from Rospiel Academy of Political Science.
+Met [[Melissandre]] and moved out to the brewery in [[Shroomburg]] with her after he graduated from Rospiel Academy of Political Science.
 
 Worked diligently in the Brewery while trying to uncover the secrets of [[Helios's Temple in the Brewery]] with Melissandre.
 
